@@ -10,13 +10,15 @@
 ![image](https://github.com/valdenz/valdenz/assets/169993090/9dabcd71-fc48-4399-a6e6-1ac5c64d91b0)
 
 
-- hai, im finn / finley idk i prefer any nameee  ₍^ >ヮ<^₎ .ᐟ.ᐟ
+- hai, im finn / finley or.. known as marine, (i dont go by that anymore) ₍^ >ヮ<^₎ .ᐟ.ᐟ
+
+he / they !! or they / them, he / him !! ( ; i dont know my sexuality yet !! )
 
 -  my main interests are, identity v (idv) bungou stray dogs (bsd) omori, and saiki k :3 ( pls int if u like idv, begging... )
 
 -  im mostly sitting near docks or smth
 
-- feel free to int / cuddle !!   whisp 2 int im mostly offtab !! ( i also have a bit of social anxiety before getting to know ppl sometimes hehe )
+- feel free to int / cuddle !!  whisp 2 int im mostly offtab !! ( i also have a bit of social anxiety before getting to know ppl sometimes hehe )
 
 - please dont copy my skins !! u can take inspo of my style but js dont copy my skins pleaseee...
 
