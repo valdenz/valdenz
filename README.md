@@ -12,7 +12,7 @@
 
 - hai, im finn / finley or.. known as marine, (i dont go by that anymore) ₍^ >ヮ<^₎ .ᐟ.ᐟ
 
-he / they !! or they / them, he / him !! ( ; i dont know my sexuality yet !! )
+- he / they !! or they / them, he / him !! ( ; i dont know my sexuality yet !! )
 
 -  my main interests are, identity v (idv) bungou stray dogs (bsd) omori, and saiki k :3 ( pls int if u like idv, begging... )
 
