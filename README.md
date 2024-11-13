@@ -14,3 +14,5 @@ e⠀ ★﹒  "  and you 𝐝𝐨𝐧𝐭 seem to  u̲n̲d̲e̲r̲s̲t̲a̲n̲d̲
 _      _ ⠀☆ .   yeeelloo heelloo !! :3 this github for pt !⠀ ᶻᶻ⠀⠀ . ıllı 
 
  ︵⠀   pretty please 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩!! esp 𝙞𝙙𝙫𝙚𝙧𝙨, bsd, omori, 𝗮𝘁𝗹𝗮, jjk fanz  ︵ㅤ ׁ⠀ㅤ⠀ׅ   i dont have 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 on pt so im mostly offtab 𝘄𝟮𝗶 ^_^  ׁ⠀ ⠀ ⠀ׅㅤ⠀ ◠◠⠀  " 
+
+ read my rentry !! https://rentry.co/meeeeeeeeeeeee
