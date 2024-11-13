@@ -15,4 +15,4 @@ _      _ ⠀☆ .   yeeelloo heelloo !! :3 this github for pt !⠀ ᶻᶻ⠀⠀ 
 
  ︵⠀   pretty please 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩!! esp 𝙞𝙙𝙫𝙚𝙧𝙨, bsd, omori, 𝗮𝘁𝗹𝗮, jjk fanz  ︵ㅤ ׁ⠀ㅤ⠀ׅ   i dont have 𝗳𝗿𝗶𝗲𝗻𝗱𝘀 on pt so im mostly offtab 𝘄𝟮𝗶 ^_^  ׁ⠀ ⠀ ⠀ׅㅤ⠀ ◠◠⠀  " 
 
- read my rentry !! https://rentry.co/meeeeeeeeeeeee
+ read my rentry !! https://rentry.co/valdenzz
